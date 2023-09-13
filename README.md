@@ -1,5 +1,5 @@
 <p align="center"><i>“Woman's scary me :(”</i></p>
-<p align="center"><i>- Leonardo Manzanilla (1999 ~ 2023) -</i></p>
+<p align="center"><i>- Leonardo Manzanilla (99 ~ 23) -</i></p>
 
 
 <details>
